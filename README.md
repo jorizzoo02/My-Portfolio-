@@ -11,8 +11,13 @@ My hobbies is dancing, reading a book, and to listen to music, also watch drama 
 i have interest in different topic of every subject, interest in different dancing skills, in every stories i want to write, and in every movies. 
 
 MY Contact Information: 
+
 e-mail: alexaavilla5@gmail.com
+
 Contact number: 09186357905 
+
 Intagram Account: Lexaaa_yy
+
 Tiktok: lexaaaa.99 
+
 Facebook: Alexa Avilla 
